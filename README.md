@@ -1,1 +1,1 @@
-# Pixel_Art
+# Pixel_Art(ドット·デザイン)
